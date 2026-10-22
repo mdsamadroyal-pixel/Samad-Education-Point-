@@ -1,1 +1,0 @@
-# Samad-Education-Point-
